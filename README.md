@@ -1,3 +1,5 @@
+![urethane casting make plastic parts without investing steel mold]([图片地址](https://www.rpproto.com/wp-content/uploads/2025/12/Urethane-Casting-ABS.jpg))
+
 You might be looking for:
 
 # urethane-casting-
